@@ -7,10 +7,10 @@ Meu nome é Eleidys Aguilera
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - ### Boas vindas ao meu perfil :blue_heart
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo:
 
 eleidys.aguilera@escola.pr.gov.br
 
 @emiiyyliee
 
-![descrição do GIF](link GIF do Tenor)
+https://media1.tenor.com/m/4fFnS_Yi3HMAAAAC/garu-enojado.gif
